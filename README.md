@@ -19,5 +19,5 @@
 除此之外，巴巴托斯还有一个神秘的身世。她实际上是位于天空岛屿中的“梦想花园”的守护者。这个花园被称为“不可思议之地”，因为在那里，时间似乎是静止的，每个人都可以拥有他们最深的愿望。然而，这个花园也隐藏着许多谜题和危险。
 
 总的来说，巴巴托斯是原神中非常重要的角色之一，她的性格、能力和背景都令人着迷。她的存在为游戏增添了更多的深度和乐趣，吸引了众多玩家的喜爱。
-![image text](https://upload-bbs.mihoyo.com/upload/2021/02/15/271644960/23abf85be52cd90395c0931b47396cb8_8740200444480865206.jpg?x-oss-process=image/resize,s_600/quality,q_80/auto-orient,0/interlace,1/format,jpg)
+![image](https://upload-bbs.mihoyo.com/upload/2021/02/15/271644960/23abf85be52cd90395c0931b47396cb8_8740200444480865206.jpg?x-oss-process=image/resize,s_600/quality,q_80/auto-orient,0/interlace,1/format,jpg)
 
